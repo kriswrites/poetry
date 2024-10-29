@@ -1,0 +1,18 @@
+# Antiphon for the Omnific  
+**By Kris Yotam**   
+
+---
+
+You, the adamantine forgiver, the one whose  
+love never flees.  
+You, the intransigent judge of the delinquent  
+and prosecutor of the reprehensible.  
+
+You are **EL-ELYON** — the Highest,  
+
+The One whose throne rests in the 7th heaven,  
+
+The One whose ordinance is steadfast.  
+
+Praise to **Attiq Youm!**  
+Praise to the **Ancient One!**
