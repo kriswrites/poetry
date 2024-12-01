@@ -1,7 +1,7 @@
 Man from Manhatten
 ---
-He was back from Manhatten
-His daughter spoke latin
-He came up with a plan
-But first to go tan
-As for the plan first tan
+He was back from Manhatten  
+His daughter spoke latin  
+He came up with a plan  
+But first to go tan  
+As for the plan first tan  
