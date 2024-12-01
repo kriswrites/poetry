@@ -2,8 +2,6 @@
 **By Kris Yotam**
 **Circa 2017-2021**
 
-### Uncategorized
-
 Under the cover of night  
 Shine solus beings dethroned  
 If only you knew you weren’t alone  
