@@ -1,0 +1,7 @@
+Man from Rochelle
+---
+There once was a man from Rochelle
+His daughter her name cornell
+She fell in a well
+And awoke with a swell
+As for the well, Rochelle
