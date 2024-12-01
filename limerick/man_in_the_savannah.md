@@ -1,0 +1,7 @@
+Man in the Savannah
+---
+There once was a man in the Savannah   
+Who dreamt he fought a pihranna  
+He awoke with a shake   
+As he felt heartache  
+He realized that he couldn't manage   
