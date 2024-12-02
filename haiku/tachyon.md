@@ -1,4 +1,4 @@
-## Haiku: Tachyon
+## Tachyon
 **By Kris Yotam**  
 **Circa 2017-2021**  
 
