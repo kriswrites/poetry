@@ -6,8 +6,10 @@ Faith, Hope, Charity
 
 Eyes wide but no light abides (a)
 My only choice is a silent guide (a)
-Before I even wa (b)
-Its there to (b)
+The passage is wide but my path is narrow (b)
+It all brings me back to that time with pharaoh (b)
+(c)
+(c)
 
 Things associated with faith
 a. Trust in the unseen
