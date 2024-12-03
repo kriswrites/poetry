@@ -4,4 +4,4 @@
   
 a angel  
 atop the pier -  
-the ship sails by  
+sailing ship
