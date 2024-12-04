@@ -6,21 +6,28 @@ What is it that makes people so keen to
 believe without sight?  
 
 In a world that bores so many stories a  
-generation could recite even  
+generation could 
 
-The most lilliputian part; yet dare to inquire  
-about the truth behind Columbus and your  
+recite
+
+even  
+
+The most lilliputian part--
+yet dare to inquire  
+about the truth behind Columbus and your --
 
 a  
 
-Fraud one who detests history as he was  
-taught, because why think that his story is  
+Fraud one who detests history as he was taught, 
+because why think that his story is 
+
 any  
 
 More than just that a tale a tall one who’s  
 unremitting presence towers above the mind  
 
 of every  
+
 Child that enters this system learning about a  
 history they have not witnessed: before  
 they can comprehend the elements that make  
@@ -46,4 +53,4 @@ give it’s life for the advancement of a world
 Who’s face it doesn’t even know, the ones  
 who deviate, who deviate; cast aside as lunatic’s  
 
-they say I’m crazy for looking for answers, I say they’re crazy for not giving proof.
+In a world that offers no proof, the loudest voices often drown out the truth.
