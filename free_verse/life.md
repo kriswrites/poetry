@@ -23,5 +23,5 @@ explore
 Its life stripped away by a lion's vigor  
 
 We all think we see the big picture  
-How long until we realize  
-the real one's upside down
+But the pieces are scattered in the sand
+Only time will reveal what we understand
